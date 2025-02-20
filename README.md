@@ -2,7 +2,9 @@
 - 👀 I’m interested in AI and Machine Learning.
 - 🌱 I’m currently learning Machine Learning.
 - 💞️ I’m looking to collaborate on innovative AI projects.
-- 📫 How to reach me cabhishekchoudhary31@gmail.com[Linkdin]abhishek-choudhary-aa2436253)
+- 📫 How to reach me cabhishekchoudhary31@gmail.com(www.linkedin.com/in/
+abhishek-choudhary-aa2436253
+)
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: I love solving puzzles and exploring new technologies.
 
